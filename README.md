@@ -1,3 +1,6 @@
 # Piglatin
 
-<img width="791" height="375" alt="Piglatin" src="https://github.com/user-attachments/assets/8aab5868-b093-4e87-ad0a-60e5f928a4d6" />
+
+
+https://github.com/user-attachments/assets/ce74a309-f373-4adb-a929-8fccc650e5d8
+
